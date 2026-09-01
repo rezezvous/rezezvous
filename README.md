@@ -1,4 +1,7 @@
 <div align="center">
+  
+  ![Profile Views](https://komarev.com/ghpvc/?username=rezezvous&label=Profile%20views&color=7a619b&style=flat)
+  
   <img width="2048" height="90" alt="c: @pixopix on tumblr" src="https://github.com/user-attachments/assets/029838ff-bddd-4b78-aafa-2fa2c47df19c" />
 
 <img width="610" height="250" alt="hugo graphic" src="https://github.com/user-attachments/assets/a07c8475-9a9f-46b9-8252-2cb3219dc2fd" />
@@ -33,3 +36,5 @@ $${\color{#984648}weirdo \space\ defenders/associates, \space\ ai \space\ users,
 
 <img width="2048" height="90" alt="c: @pixopix on tumblr" src="https://github.com/user-attachments/assets/1efe07bf-0ea4-46a2-88b2-cb9705ad570a" />
 </div>
+
+

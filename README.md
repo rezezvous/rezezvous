@@ -25,7 +25,7 @@ $${\color{black}-}$$
 
 $${\color{#984648}basic \space\ dni \space\ criteria, \space\ toxic \space\ fandoms, \space\ idiotic \space\ behavior,}$$
 
-$${\color{#984648}weirdo \space\ defenders/associates, \space\ ai \space\ users, \space\ THOSE \space\ yaoi/yuri/straigth \space\ shippers \space\ or \space\ yumeshippers.}$$
+$${\color{#984648}weirdo \space\ defenders/associates, \space\ ai \space\ users, \space\ THOSE \space\ yaoi/yuri/straight \space\ shippers \space\ or \space\ yumeshippers.}$$
 
 <img width="99" height="57" alt="tumblr_cdd319cf436ecf7b80e77419287f1617_fec92e7e_100" src="https://github.com/user-attachments/assets/79802cb5-2969-4daa-b4aa-eb1660282167" />
 <img width="99" height="56" alt="tumblr_371b3f4423561a0ae956c3ab81acb68e_c4dcb2e4_100" src="https://github.com/user-attachments/assets/1a1ae7a6-99d2-437d-8ee5-0d38ee2fc277" />
